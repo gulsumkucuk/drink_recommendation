@@ -1,0 +1,5 @@
+![5 1](https://github.com/gulsumkucuk/drink_recommendation/assets/91392121/ddd9d5d5-745d-48f1-9a5d-e73f96b93fff)
+![4 1](https://github.com/gulsumkucuk/drink_recommendation/assets/91392121/112fef70-fd10-401c-a0fa-0d9086d291be)
+![3 1](https://github.com/gulsumkucuk/drink_recommendation/assets/91392121/75152998-5e58-4ca2-bc30-307958dd5b88)
+![7 2](https://github.com/gulsumkucuk/drink_recommendation/assets/91392121/5f7068ec-713b-48f8-b4ce-e3cee673f712)
+![6 1](https://github.com/gulsumkucuk/drink_recommendation/assets/91392121/671a1cbf-c2e5-4763-aff1-48b252609c5c)
